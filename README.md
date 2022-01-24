@@ -1,6 +1,6 @@
 # Moronobu-GuideToLoveYoshiwara-1678
 
-HISHIKAWA Moronobu 菱川 師宣 (1631-1694)
+HISHIKAWA Moronobu 菱川 師宣 (1631-1694)
 
 "Great Gate of the Yoshiwara" (Ōmonguchi) 
 
